@@ -6,4 +6,4 @@
 🌱 I’m currently learning Design and Data Visualization<br/>
 📫 How to reach me: megatula13@gmail.com<br/>
 😄 Pronouns: She/her<br/>
-⚡ Fun fact: Recipe developer, Polyglot, Climber (V3), Music Curator<br/>
+⚡ Fun fact: Recipe Developer, Polyglot, Climber (V3), Music Curator<br/>
